@@ -1,1 +1,1 @@
-nothing here yet. will be filled out when the game releases.
+Nothing here yet. Will be filled out when the game releases.
